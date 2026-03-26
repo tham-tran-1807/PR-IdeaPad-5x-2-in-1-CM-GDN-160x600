@@ -1,0 +1,1 @@
+# PR-IdeaPad-5x-2-in-1-CM-GDN-160x600
